@@ -1,1 +1,1 @@
-LuckwillbealwaysCrochet-RSSCHOOl-cv
+https://luckwillbealwaysCrochet.github.io/rsschool-cv/cv
